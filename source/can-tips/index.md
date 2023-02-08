@@ -1,7 +1,7 @@
 ---
 title: 罐头贴纸APP
 ---
-iPrivacy Policy for 罐头贴纸
+Privacy Policy for 罐头贴纸
 At 罐头贴纸, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by 罐头贴纸 and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
